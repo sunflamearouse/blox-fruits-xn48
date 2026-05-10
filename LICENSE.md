@@ -1,4 +1,4 @@
-
+Experience blox fruits like never before with blox fruits hidden Script, the #1 Script. Includes aimbot and anti-ban for unbeatable performance.
 
 
 
